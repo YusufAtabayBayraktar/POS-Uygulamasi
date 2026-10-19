@@ -1,0 +1,2 @@
+POS UYG
+bu kadar
